@@ -8,7 +8,7 @@
 
 ![f26db027](https://github.com/user-attachments/assets/c85a56c2-6c0b-467b-937a-0b469907ac3b) $\color{#e00707}{\textsf{huge dave kin}}$
 
-![f26db027](https://github.com/user-attachments/assets/c85a56c2-6c0b-467b-937a-0b469907ac3b) $\color{#e00707}{\textsf{i selfship with j english and planet derse}}$
+![f26db027](https://github.com/user-attachments/assets/c85a56c2-6c0b-467b-937a-0b469907ac3b) $\color{#e00707}{\textsf{i selfship with j english and planet derse im objectuming it im objectuming it}}$
 
 ![f26db027](https://github.com/user-attachments/assets/c85a56c2-6c0b-467b-937a-0b469907ac3b) $\color{#e00707}{\textsf{prince of time}}$
 
